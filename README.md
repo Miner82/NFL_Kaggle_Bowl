@@ -15,3 +15,5 @@ some optimal configurations for the gunners and blockers for the kicking team.  
 is included. 
 Unfortunately, two of my other group members backed out of the competition due to work/school conflicts, and we
 were not able to take it further.   I miss that $100k prize.....
+
+![image](https://user-images.githubusercontent.com/30931718/175838891-7d8fbe80-ee69-453a-b8ea-4ef8a6bc1a30.png)
